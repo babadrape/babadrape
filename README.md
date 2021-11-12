@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Baba Drape
 - 👀 I’m interested in growing ApeSwap and swinging from trees
-- 💞️ I’m looking to contribute to the ApeSwap eco-system
+- 💞️ I’m looking to contribute and grow the ApeSwap eco-system 
 - 📫 You can reach on Telegram and Discord > @baba_drape
 
 <!---
